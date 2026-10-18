@@ -1,0 +1,1 @@
+# Vstupni-a-vystupni-zarizeni
